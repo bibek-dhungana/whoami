@@ -1,1 +1,13 @@
-Hello, I'm Bibek Dhungana. I'm an IT Student & Cybersecurity Enthusiast from Nepal 🇳🇵. I'm proficient at web application Penetration testing , also have a keen interest in learning about different domains of cybersecurity like OSINT, Network Infrastructure Penetration Testing & so on. I also love travelling in my free time. 
+Hello, I'm Bibek Dhungana. I'm an IT Student & Cybersecurity Enthusiast from Nepal 🇳🇵. 
+
+
+Connect with me Facebook:
+ 
+https://www.facebook.com/profile.php?id=100006931365074
+
+Connect with me on Linkedin:
+https://www.linkedin.com/in/bibek-dhungana-b8862a165
+
+Connect with me on Twitter:
+
+https://twitter.com/BibekDhungana7?s=09
